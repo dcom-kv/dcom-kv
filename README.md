@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @dcom-kv
+# 👋 Hi, I’m KV!
 
 Welcome to my GitHub profile!
 
